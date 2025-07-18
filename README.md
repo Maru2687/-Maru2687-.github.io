@@ -31,7 +31,7 @@ Soy Técnica Superior en Ciencia de Datos e Inteligencia Artificial con más de 
 
 ## ¿Queres contactarme?
 - LinkedIn: [linkedin.com/in/marinagodoy](https://linkedin.com/in/marinagodoy)
-- Email: tu-email@ejemplo.com
+- Email: marudgodoy@gmail.com
 
 ---
 
